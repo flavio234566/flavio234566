@@ -8,3 +8,5 @@
 ## Você entrar em contato comigo 🤓
 
 - flavio.cezotto.santos@escola.pr.gov.br
+
+![](https://media.tenor.com/jNccxJwSwVIAAAAi/valorant-omen-cat-dance.gif)
